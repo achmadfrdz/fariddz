@@ -1,0 +1,2 @@
+# fariddz
+ingin menjadi pintar
